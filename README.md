@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @1MrChicken
-- 👀 I’m interested in Hpckey
+- 👀 I’m interested in Hockey. 
 - 🌱 I’m currently learning Computer Coding
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
